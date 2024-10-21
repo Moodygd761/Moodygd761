@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning PHP and MySQL
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me email me at <a href="mailto:not733402@gmail.com">
+- 📫 How to reach me not733402@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love uwu not
 
