@@ -5,6 +5,7 @@
 - 📫 How to reach me not733402@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love uwu not
+- all my repositories will be available here https://github.com/uwunotislove
 
 
 
